@@ -1,5 +1,5 @@
 # 💫 About Me:
-Hey wassup, I'm Yama🗻<br><br>I'm a computer science student and a part time Degen🫡
+Hey wassup, I'm Yama🗻<br><br>A computer science student and a part time Degen🫡
 <br>💤I'm currently trying to learn everything umm hopefully i will find one thing soon that i can fully focus on, Hopefully!🎯<br>
 
 
